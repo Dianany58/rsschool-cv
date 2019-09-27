@@ -1,7 +1,7 @@
 # **Dianan Egizarian** 
 ### contacts: 
  1. tel: +7-931-533-21-88        
- 2. e-mail:dianany58@yahoo.com  
+ 2. e-mail: dianany58@yahoo.com  
  ----------------------
 * I want to learn programming and work in a good company, developing my skills.  To improve every day is very important for me, because I consider self-education as my main goal.  
 * I like to work among people who are obsessed with the passion of self-development.  Constantly learning is my rule of life.   
